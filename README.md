@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @wonderlawn 
-- 👀 I’m interested in learning how to use Github
-- 🌱 I’m currently learning Github
+- 👋 Hi, I’m @wonderlawn artificial grass installation.
+- 👀 I’m interested in learning how to professionally install artificial grass.
+- 🌱 I’m currently learning Superior Artificial Grass.
 - 💞️ I’m looking to collaborate on our website https://wonderlawn.com
 - 📫 Free quote at https://wonderlawn.com/free-quote/
 
